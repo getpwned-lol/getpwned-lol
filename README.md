@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## Hi there, lulz here!!
+i play games like pony town, roblox, twitch, etc.
 <!--
 **getpwned-lol/getpwned-lol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
