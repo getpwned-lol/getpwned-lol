@@ -1,8 +1,8 @@
 ## Hi there, lulz here!!
 i play games like pony town, roblox, twitch, etc.
 <!--
-**getpwned-lol/getpwned-lol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+Screenshot 2025-11-08 7.10.08 PM.png
+![](images/Screenshot2025-11-087.10.08PM.png
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on drawing more often-
