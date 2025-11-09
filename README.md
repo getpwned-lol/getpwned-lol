@@ -9,5 +9,5 @@ yes!, i play ponytown lol-
 
 <img width="975" height="833" alt="Image" src="https://github.com/user-attachments/assets/e6313b56-5eb8-4212-b58d-776577ab3cc6" />
 ᴛʜᴀɴᴋ ʏᴏᴜ ꜰᴏʀ ʟᴏᴏᴋɪɴɢ ᴀᴛ ᴍʏ ɢɪᴛʜᴜʙ ᴡᴏᴡᴏᴡᴏᴡ!!!! (ᴀɴʏ ʟᴇɢᴀʟ ꜱʜɪᴘ ᴄᴀɴ ɪɴᴛ ʙᴛᴡ ᴀɴᴅ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄ+ʜ ʟᴏʟ)
-@TOUGHLUCKED, @BRIGHTEYES, @c00lhaxxing, @m4ssinfection, @Doxdxo hihihih!!
+@TOUGHLUCKED, @BRIGHTEYES, @c00lhaxxing, @m4ssinfection, @Doxdxo,@Xioisme hihihih!!
 <img width="1002" height="1001" alt="Image" src="https://github.com/user-attachments/assets/23775287-7249-4840-8601-54190bdeab2b" />
