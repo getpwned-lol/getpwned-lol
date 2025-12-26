@@ -1,9 +1,8 @@
 ## in w.i.p readme-
 ![Image](https://github.com/user-attachments/assets/ec164af2-ce8c-416d-b265-38ab7e10ee32)
+<img width="1916" height="1936" alt="Image" src="https://github.com/user-attachments/assets/7652389d-ed5a-4439-95fb-6602dcd86810" />
+![Image](https://github.com/user-attachments/assets/9ce943de-ad01-49f6-9cc7-12464b2c6b95)
 
 
+<img width="300" height="182" alt="Image" src="https://github.com/user-attachments/assets/2f55c8d2-1380-462d-84e7-7ec3689d7bbc" /> ![Image](https://github.com/user-attachments/assets/e0c2c654-f2ef-4967-870f-5e5656223da5) <img width="300" height="182" alt="Image" src="https://github.com/user-attachments/assets/7e0d39e6-af82-44ef-b00f-9eba865ff723" />
 
-<img width="1280" height="169" alt="Image" src="https://github.com/user-attachments/assets/51b6c31d-8000-414c-b27a-350ea3089819" />
-
-
-<img width="300" height="182" alt="Image" src="https://github.com/user-attachments/assets/2f55c8d2-1380-462d-84e7-7ec3689d7bbc" /> ![Image](https://github.com/user-attachments/assets/e0c2c654-f2ef-4967-870f-5e5656223da5)
