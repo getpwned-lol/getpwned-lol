@@ -4,7 +4,9 @@ Hihihi, read this plspls (i love squire/britalian/mafioso so much.) ![Image](htt
 Name's i'd be referred as is Lulz/pwns ^^, she/they, 16.── .✦
 Pony town acc, nothing special about this acc tbh.
 ![Image](https://github.com/user-attachments/assets/64f99c69-ab61-4fba-ac6d-4043561eed3e) ![Image](https://github.com/user-attachments/assets/64f99c69-ab61-4fba-ac6d-4043561eed3e)
+
 I really like fandoms like deltarune, frozen soul/dream game, limbus company dod, yeah..yeah. much more.
+
 <img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/11fc5f3d-6319-41ce-86c7-cc9a949a3630" />  Feel free to int, i won't bite. Especially c+h!!ㅤꨄ︎, More info about me on my straw since this is still in w.i.p but thank you for reading this.!!!  
 ![Image](https://github.com/user-attachments/assets/64f99c69-ab61-4fba-ac6d-4043561eed3e) ![Image](https://github.com/user-attachments/assets/64f99c69-ab61-4fba-ac6d-4043561eed3e)
 
